@@ -1,10 +1,5 @@
 - Hi all, I’m @Alexander-ip-
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-alexander-ip/alexander-ip is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👀 last time my interes ismany lesson every day: at work, home, Institute. 
+- 🌱 I’m currently learning English language, five group for electrical safety, every day read, learn and fists priests write.   
+- 💞️ I’m looking to collaborate on ...ideas many, no time
+- 📫 How to reach me ..., github, messengers.
